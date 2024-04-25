@@ -30,6 +30,6 @@
 
 ###
 
-<h3 align="left">head - Dubai boy head skin<br>body - Dubai boy body skin<br>BJ21 - 10,000 coin<br>6405713 - 5,000 coin</h3>
+<h3 align="left"> • head - Dubai boy head skin<br> • body - Dubai boy body skin<br> • BJ21 - 10,000 coin<br> • 6405713 - 5,000 coin</h3>
 
 ###
